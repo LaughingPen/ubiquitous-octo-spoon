@@ -1,3 +1,3 @@
 # ubiquitous-octo-spoon
-discordwebhook
-I am the best person ever and am a god
+Hey there
+You look like a good joe
